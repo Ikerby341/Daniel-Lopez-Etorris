@@ -1,1 +1,2 @@
-# Daniel-Lopez-Etorris
+# Daniel Lopez Etorris
+El dani es bastante gay
