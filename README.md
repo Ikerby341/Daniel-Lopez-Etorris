@@ -1,2 +1,2 @@
 # Daniel Lopez Etorris
-El dani es bastante gay
+Esta es una pagina web creada por mi sobre una persona la cual admiro mucho!!
